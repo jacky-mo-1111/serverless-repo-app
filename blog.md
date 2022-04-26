@@ -15,4 +15,4 @@ I once was a business student. In my previous summer, I have worked as Equity Re
 I am a huge football fan. I was the president and captain of the American Football Club in my high school, leading the team to get the city's first championship in our team history. In addition, to build our team's fund, I obtained corporate sponsorship for over $5000 from 2 large sponsors and negotiated long-term supporting packages. I also created a class on American football to teach it to an underclassman, which attracted dozens of students. My football experience helped build my communication and leadership skills, realizing how passionate I can be for the work I like. 
 
 I hope you will consider my candidacy. If you have any questions about my candidacy, please don't hesitate to reach out to me. I hope you have a fantastic rest of the week, and looking forward to hearing from you.
-![image](https://user-images.githubusercontent.com/78947954/165237334-2d9e26ab-2742-4c5c-8520-4f7a2cd666ec.png)
+
